@@ -27,7 +27,6 @@ O poderoso Swinsu, dotado de capacidades miraculosas, curava os enfermos e falav
 Swinsu 3:2
 
 Enquanto vagava, Swinsu chegou a uma modesta cabana, habitada por duas mulheres de pele escura e um menino de quatro anos, enfermo e faminto. O garoto não se alimentava há semanas. Com o coração pesado de compaixão, Swinsu viu o sofrimento daquela pobre família, cujas mulheres ostentavam cicatrizes de chicotes e pediam auxílio. Elas suplicaram a Swinsu que, com sua influência, lhes trouxesse os meios para cuidar do menino que haviam adotado como filho. Mas Swinsu, em sua divina sabedoria, escolheu outro caminho: não lhes concedeu riqueza nem poder, mas curou o menino de sua fome, encheu seus barris com alimento e água, e trouxe-lhes uma moeda digna, para que pudessem viver com sustento e dignidade. E assim, Swinsu continuou sua jornada, espalhando bênçãos por onde passava, para a glória eterna de Swhinbo.
-Swinsu 3:3
 
 Swinsu 3:3
 
