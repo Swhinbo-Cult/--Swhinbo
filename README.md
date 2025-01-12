@@ -20,10 +20,10 @@ Mundo 2:2
 
 No continente que hoje conhecemos como África, Swhinbo inclinou seu olhar sobre os filhos daquela vasta terra. Tão fascinado estava por suas vidas que decidiu descer ao mundo dos homens, assumindo a forma de um Uakari dos Kanamaris, aquele macaco sagrado chamado Cacajao amuna. Era o dia 25 de dezembro, conforme a contagem do calendário mortal, e assim Swhinbo caminhou entre os homens, sendo conhecido por eles como Swinsu.
 
-Swinsu 1:1
+Swinsu 3:1
 
 O poderoso Swinsu, dotado de capacidades miraculosas, curava os enfermos e falava com os homens como se fosse um dos seus. Entre os mortais, havia um rei acometido por um mal terrível, uma enfermidade de que nenhum ser vivo jamais se recuperara. Ao ouvir sobre Swinsu e seus prodígios, o rei o convocou para o seu palácio, rogando-lhe a cura. Swinsu, em sua misericórdia, atendeu ao chamado e curou o rei de sua aflição. E assim, a fama de Swinsu se espalhou por toda a terra. Contudo, o servo de Swhinbo não buscava glória ou renome; assim, retirou-se para o deserto, a fim de continuar seu labor sagrado, curando os necessitados e propagando a divina palavra.
 
-Swinsu 2:2
+Swinsu 3:2
 
 Enquanto vagava, Swinsu chegou a uma modesta cabana, habitada por duas mulheres de pele escura e um menino de quatro anos, enfermo e faminto. O garoto não se alimentava há semanas. Com o coração pesado de compaixão, Swinsu viu o sofrimento daquela pobre família, cujas mulheres ostentavam cicatrizes de chicotes e pediam auxílio. Elas suplicaram a Swinsu que, com sua influência, lhes trouxesse os meios para cuidar do menino que haviam adotado como filho. Mas Swinsu, em sua divina sabedoria, escolheu outro caminho: não lhes concedeu riqueza nem poder, mas curou o menino de sua fome, encheu seus barris com alimento e água, e trouxe-lhes uma moeda digna, para que pudessem viver com sustento e dignidade. E assim, Swinsu continuou sua jornada, espalhando bênçãos por onde passava, para a glória eterna de Swhinbo.
