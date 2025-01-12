@@ -27,3 +27,16 @@ O poderoso Swinsu, dotado de capacidades miraculosas, curava os enfermos e falav
 Swinsu 3:2
 
 Enquanto vagava, Swinsu chegou a uma modesta cabana, habitada por duas mulheres de pele escura e um menino de quatro anos, enfermo e faminto. O garoto não se alimentava há semanas. Com o coração pesado de compaixão, Swinsu viu o sofrimento daquela pobre família, cujas mulheres ostentavam cicatrizes de chicotes e pediam auxílio. Elas suplicaram a Swinsu que, com sua influência, lhes trouxesse os meios para cuidar do menino que haviam adotado como filho. Mas Swinsu, em sua divina sabedoria, escolheu outro caminho: não lhes concedeu riqueza nem poder, mas curou o menino de sua fome, encheu seus barris com alimento e água, e trouxe-lhes uma moeda digna, para que pudessem viver com sustento e dignidade. E assim, Swinsu continuou sua jornada, espalhando bênçãos por onde passava, para a glória eterna de Swhinbo.
+Swinsu 3:3
+
+Swinsu 3:3
+
+E assim, ao chegar em uma pequena cidade no interior, Swinsu deparou-se com uma mulher que, por necessidade, oferecia seu corpo em troca de moedas. Grande foi o pesar que preencheu o coração de Swinsu ao ver uma filha de Swhinbo, moldada com o mesmo sopro divino que anima todas as criaturas, sujeitar-se a tal condição. Pois não era a intenção do Altíssimo que suas criações buscassem moedas por tais meios, visto que o prazer deveria ser fruto do consentimento mútuo e sincero entre os seres vivos, nascido de um desejo puro e partilhado, e não de uma necessidade imposta pela escassez ou pelo desespero.
+
+Desejoso de compreender a profundidade daquela triste realidade, Swinsu se aproximou da mulher e, com voz mansa e olhar piedoso, inquiriu-lhe a razão de tão angustiante escolha. E a mulher, com lágrimas nos olhos, respondeu-lhe que tal sacrifício fazia para sustentar seu filho, pois não havia outro modo de prover-lhe sustento.
+
+Então, naquele instante, uma revelação divina desceu sobre Swinsu, e ele percebeu a dura verdade que permeava o mundo dos homens: tal situação, embora triste, fazia parte das provações de suas criações, uma necessidade que se originava nas dificuldades e fraquezas da vida terrena. Mas o coração de Swinsu transbordou de compaixão. Ele se aproximou e envolveu a mulher em um abraço de ternura e misericórdia. E eis que, como por milagre, seu filho surgiu correndo em direção à mãe, seus bolsos resplandecendo de moedas douradas, um presente divino enviado pelo próprio Swhinbo através de Swinsu.
+
+E Swinsu, em sua infinita sabedoria, proferiu estas palavras à mulher: "Filha de Swhinbo, não mais precisarás caminhar por este árduo e doloroso caminho, pois o sustento que necessitais vos foi provido. Contudo, se em teu coração sentires que teu valor não depende de tal renúncia, ainda assim serás digna aos olhos do Altíssimo, pois Ele te ama de qualquer modo, e de ti jamais se afastará, seja qual for teu destino, quem tentar julgar a ti, será punido."
+
+E com isso, Swinsu partiu em sua jornada, sempre espalhando compaixão e misericórdia, para que as criações de Swhinbo pudessem viver em harmonia e dignidade, conforme a vontade divina.
